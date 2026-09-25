@@ -1,0 +1,2 @@
+## **Dalian local foreigner service**
+Are you a foreign inhabitant in Dalian looking for the ultimate local service experience? Look no further than our service, your one-stop-shop for all your local needs. Our service is designed specifically for foreigners living in Dalian. We understand the challenges that come with navigating a new city, and that's why we offer a comprehensive range of features to make your life easier.
